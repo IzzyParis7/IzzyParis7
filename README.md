@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @IzzyParis7
-- 👀 earth, rocks, ideas, art
+- 👀 earth, rocks, ideas, art, geocaching, experience based income
 - 🌱 learning to reach out and connect
 - 💞️ Earthships, community, what can we do together 
 - 📫 How to reach me ... preciselyparis@gmail.com
